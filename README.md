@@ -1,2 +1,7 @@
 # trade-manual
-Twitterで快適にお取引をするために、ざっくりメモ
+https://rosachico.github.io/trade-manual/index.html　　
+
+## 連絡先
+白鳥チコ(Chico Shiratori)
+@cliemuparfait  
+https://cliemuparfait.sakura.ne.jp/
